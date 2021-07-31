@@ -1,0 +1,3 @@
+- 👋 Hi, I’m xImCurved aka Pxngu.
+- 👀 I live in Germany.
+- 📫 You can contact me on Discord. "Pxnguxnツ#3333" is my Tag.
